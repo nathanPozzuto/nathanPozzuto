@@ -5,4 +5,5 @@ The first piece of technology I owned was a kindle in 2nd grade.
 My hometown is Elizabeth, Pa (40 minutes from Pittsburgh)
 You can contact me through email at nathan.pozzuto@gmail.com.
 ![This is a picture of me](IMG_0134.jpeg)
+Look how perty Big ol' Cathy is
 
